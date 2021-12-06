@@ -1,0 +1,5 @@
+- Hi, I’m @puckr
+- I’m a neuroscientist working in the Allen Neurocircuitry and Cognition Lab, and the Mattfeld Memory and Development Lab at FIU. 
+- I successfully defended by Dissertation and am on the market for data and research science jobs!
+- Currently I am working on a project investigating white matter differences in Alzheimer's Disease
+- Feel free to email me at puck_reeders@hotmail.com if you want to reach me!
