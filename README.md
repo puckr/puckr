@@ -1,3 +1,3 @@
-- Hi, I’m @puckr
-- I’m a neuroscientist working in the Allen Neurocircuitry and Cognition Lab, and the Mattfeld Memory and Development Lab at FIU. 
+- Hi, I’m Puck
+- I’m a Post Doctoral Neuroscientist working in the Allen Neurocircuitry and Cognition Lab, and the Mattfeld Memory and Development Lab at FIU. 
 - Email: puck_reeders@hotmail.com
